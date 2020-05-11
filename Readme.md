@@ -1,4 +1,4 @@
-![1589184969630](C:\Users\poona\AppData\Roaming\Typora\typora-user-images\1589184969630.png)
+![1589184969630](Images\1589184969630.png)
 
 
 
